@@ -36,7 +36,7 @@
 ## 📫 Reach Me
 
 - 📧 khalaleritesh@gmail.com
-- 💼 [LinkedIn](www.linkedin.com/in/ritesh-khalale-340489314)
+- 💼 [LinkedIn] (www.linkedin.com/in/ritesh-khalale-340489314)
 
 ---
 
